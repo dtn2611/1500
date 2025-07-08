@@ -37,6 +37,6 @@
 支持多设备观看，随时随地畅享
 无论您使用的是手机、平板还是电脑，我们都提供完美的跨平台支持。您可以在任何设备上无缝切换，随时随地畅享高清日本AV影片，随心所欲。
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtn2611/1500 ）</span>
 
 
